@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi! I'm Praylin 👋
 
 Hello, I'm **Praylin**.\
 I am **a student and a tech enthusiast**.\
