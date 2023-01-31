@@ -1,7 +1,7 @@
 ### Hi! I'm Praylin 👋
 
 Hello, I'm **Praylin Simarmata**.\
-You can call me _Praylin_
+You can call me _Praylin_.\
 I am **a student and a tech enthusiast**.\
 If you want to keep in touch with me, please follow this account.
 
