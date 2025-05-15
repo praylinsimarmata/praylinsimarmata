@@ -2,7 +2,7 @@
 
 Hi, I'm **Praylin Simarmata**.\
 You can call me Praylin.\
-I am **a fresh graduate and a data & tech enthusiast**.\
+I am **a data & tech enthusiast**.\
 If you want to keep in touch with me, please follow this account.
 
 <p align="left">
